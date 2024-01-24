@@ -1,3 +1,10 @@
+It's that time of the year again. Combed through all 444 pages, and listed my personal favorites of this season. 
+
+![[Pasted image 20231221134724.png]](https://www.ssense.com/en-ca/men/product/lemaire/black-hood-beanie/13798981) 
+
+An everyday Balaclava for cozy and anonymous winters.
+
+
 https://www.ssense.com/en-ca/men/product/lemaire/black-hood-beanie/13798981
 ![[Pasted image 20231221134724.png]]
 

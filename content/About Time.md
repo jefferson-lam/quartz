@@ -8,7 +8,7 @@ What happens to people who have unlimited tries at life? To people who can repla
 
 He meets Mary and falls in love with her. Over the course of the movie, Tom uses time traveling to learn more about Mary - like her interest in Kate Moss. He quotes her while confessing to her: 
 
-[Do you agree that the magic of her lies in her history? That the informality of her early shots compared to this stuff, so you just always know that, despite the high fashion, she’s still just that cheeky, normal, naked girl on the beach?] 
+> Do you agree that the magic of her lies in her history? That the informality of her early shots compared to this stuff, so you just always know that, despite the high fashion, she’s still just that cheeky, normal, naked girl on the beach? 
 
 Tom and Mary get married. Dad tells Tom that he loves him, for the first time. Tom and Mary give birth to a girl. 
 
