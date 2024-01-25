@@ -15,5 +15,5 @@ This space here represents for me an opportunity to share and track my own growt
 
 Here are some places you may want to visit:
 
-- [The bookshelf on the far wall]: books that currently being read, are read or are to read
+- [The bookshelf on the far wall](/content/books.md): books that currently being read, are read or are to read
 - [The film tape on the ground](/content/movies.md): movies that I've been meaning to watch
