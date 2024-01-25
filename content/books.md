@@ -1,5 +1,5 @@
 ---
-title: booklist
+title: books
 draft: "false"
 ---
 A (mostly) up-to-date list of books I have wanted to read, am reading, or finished reading. Links are to scribbles/ideas that were inspired by the book that's linked!

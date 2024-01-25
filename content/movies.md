@@ -1,5 +1,5 @@
 ---
-title: movielist
+title: movies
 draft: "false"
 ---
 
