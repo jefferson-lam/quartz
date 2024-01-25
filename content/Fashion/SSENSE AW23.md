@@ -1,10 +1,14 @@
 ---
-title: SSENSE AW23
-draft: "false"
-tags:
----
 ---
 
+---
+title: SSENSE AW23 Curation
+draft: false
+tags: 
+- curation
+- fashion
+- ssense
+---
 It's our favorite time of the year again :) - combed through all 444 pages, and listed my personal favorites of this season. 
 ##### AW2023
 | ![[Pasted image 20231221134724.png]] | [Lemaire, Black Hood Beanie](https://www.ssense.com/en-ca/men/product/lemaire/black-hood-beanie/13798981)<br><br>Not sure if Balaclavas are trendy right now, but I love the anonymity and coziness that a Balaclava gives. This one from Lemaire just ticks all the boxes: nice shape, knit, nice material and warm! |
