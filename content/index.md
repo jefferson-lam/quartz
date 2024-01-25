@@ -14,3 +14,6 @@ On a broader level, I care deeply about leveraging technology to create spaces t
 This space here represents for me an opportunity to share and track my own growth in my creative endeavors. Here, I hope it acts as an open invitation into the many winding paths throughout this garden.
 
 Here are some places you may want to visit:
+
+- [The bookshelf on the far wall](/booklist): books that currently being read, are read or are to read
+- [The film tape on the ground](/movies): movies that I've been meaning to watch

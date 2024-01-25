@@ -1,6 +1,6 @@
 ---
 title: movielist
-draft: "true"
+draft: "false"
 ---
 
 A (mostly) up-to-date list of movies that I've watched, or want to watch. Like for books, links are to scribbles and ideas that were inspired by the movie that's linked.
