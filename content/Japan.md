@@ -1,3 +1,8 @@
+---
+aliases:
+---
+
+
 [Buildings]
 Paseo Ichigayadaimachi
 
