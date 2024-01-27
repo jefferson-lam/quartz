@@ -6,6 +6,6 @@ A space for all everything fashion.
 > Work in progress.
 
 ### SSENSE 
-[[SSENSE AW23]]
+[[SSENSE Sale AW23]]
 
 ### SEWING
