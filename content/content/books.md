@@ -13,7 +13,7 @@ A (mostly) up-to-date list of books I have wanted to read, am reading, or finish
 - **The Creative Act: A Way of Being** by Rick Rubin
 - **An Antidote to Chaos** by Jordan Peterson
 #### 2023
-- **Mindset: The New Psychology of Success** by Carol Dweck
+- **[[Mindset]]: The New Psychology of Success** by Carol Dweck
 - **Atomic Habits** by James Clear
 - **Dune** by Frank Herbert
 - **Dune Messiah** by Frank Herbert
