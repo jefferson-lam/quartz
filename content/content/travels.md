@@ -3,7 +3,8 @@ A (mostly) up-to-date list of places that I've traveled to, and will travel in t
 - London, Paris
 #### The path travelled 
 ##### 2023
-- Tokyo, Osaka, Kyoto, and the unknown countryside. 
+- Montreal
+- [[Tokyo, Osaka, Kyoto, and the unknown countryside]]. 
 - Minneapolis, Duluth
 - Madrid, Barcelona, Sevilla, Granada, Gibraltar, Tarifa
 - Tangier, Fes, Marrakech, and the Sahara Desert
