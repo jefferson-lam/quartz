@@ -1,10 +1,10 @@
 Building this list up from all my past and future trips to Tokyo.
-#### Favorite neighborhoods
+### Favorite neighborhoods
 - Omotesando
 - Shibuya
 - Nakameguro
 - Shimokitazawa
-#### Fashion
+### Fashion
 
 **GR8**
 *Japan, 〒150-0001 Tokyo, Shibuya City, Jingumae, 1 Chome−11−62.5 F*
@@ -39,7 +39,7 @@ This is store that replaced the former best store in Tokyo, **Nibbunoichi** (mov
 **blue room**
 Japan, 〒150-0002 Tokyo, Shibuya City, Shibuya, 2 Chome−4−10 鈴木ビル 102
 
-I didn't personally go, but I've heard a lot of great things about their curation.
+I didn't personally go, but I've heard a lot of great things about their curation. Have a look if you're ever in the area.
 
 **sinot.clothing**
 *54-1, Motoyoyogicho, Shibuya City, Tokyo 151-0062, Japan*
@@ -56,7 +56,7 @@ By far the most gate-kept store I've been to. Amazing collector, amazing eyes fo
 
 ![[054340D0-6126-4C4A-998F-AB198DCB158B_1_105_c.jpeg]]
 *Literally.. the entrance. Try it to find it :)*
-#### Food
+### Food
 
 Non-exhaustive list of great restaurants I've been to and really enjoyed. One thing I will mention is that it is almost impossible to have a truly bad meal in Japan. Exception: don't go to Ichiban - it's average but not worth the price.
 
@@ -90,7 +90,7 @@ The best convenience store IMO. The egg sandwich, the churro desert and the iced
 
 Be like a local and eat a bowl of Gyudon for 2$ and that comes out in less than 30 seconds. Dine amongst the tired salarymen and feel the energy. There's a secret menu item that I will gatekeep but can find yourself :) 
 
-#### Cafes and Bakeries
+### Cafes and Bakeries
 
 Just way too many to list and so many that I didn't go to, so take this list with a grain of salt. Here are the ones I went to that I personally enjoyed.
 
@@ -111,7 +111,7 @@ Is it worth waiting in line for 3 hours to get in? Probably not. But if the line
 *1 Chome-22-10 Kamimeguro, Meguro City, Tokyo 153-0051, Japan*
 
 I'm donut?
-#### Going out
+### Going out
 
 Tokyo is filled with bars, but to keep things precise and concise, here's a short list of my favorites. I won't include any clubs here because I think they're all sort of mid. I will say that if you can manage to get into an underground party (illegal) with underground DJs that that will be the best experience of your life (I'll let you figure out how to find them). 
 
@@ -120,7 +120,7 @@ Japan, 〒153-0042 Tokyo, Meguro City, Aobadai, 1 Chome−19−10 エスセナ�
 
 Epulor is a cafe during the day, and turns into a listening bar at night. Ambiance in here is unreal and is located right by the Meguro River, where you can see cherry blossoms.  Played classics like John Mayer's LA concert and remixed some indie j-rock songs - turned on Shahzam on multiple occasions.
 
-#### Shops
+### Shops
 
 **Utsuwa Kaede**
 *Japan, 〒107-0062 Tokyo, Minato City, Minamiaoyama, 4 Chome−17−1 1F*
@@ -133,8 +133,7 @@ My favorite store in Tokyo. Little pottery store (on the higher end) with a focu
 *55-6 Motoyoyogicho, Shibuya City, Tokyo 151-0062, Japan*
 
 Funky store with a bunch of crazy looking plants. Right next to sinot so conveniently placed for the combo.
-
-#### Places
+### Places
 
 **21_21 Design**
 *Japan, 〒107-0052 Tokyo, Minato City, Akasaka, 9 Chome−7−6 東京ミッドタウン ミッドタウン・ガーデン*
