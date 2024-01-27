@@ -34,7 +34,7 @@ More of an art exhibit than anything. If you can afford anything here, can we be
 **PAT Market**
 *3 Chome-27-8 Jingumae, Shibuya City, Tokyo 150-0001, Japan*
 
-This is store that replaced the former best store in Tokyo, **Nibbunoichi** (moved to Osaka). Same owner as Nibbunoichi, but with a different kind of selection. Still good. Find a very diverse range of clothes from thrifted things to most archive designer pieces on the second floor. Sketchy entrance (in between buildings) but worth checking out.
+This is store that replaced the former best store in Tokyo, **Nibbunoichi** (moved to Osaka). Same owner as Nibbunoichi, but with a different kind of selection. You will find a very diverse range of clothes from thrifted things to most archive designer pieces on the second floor. Sketchy entrance (in between buildings) but worth checking out.
 
 **blue room**
 Japan, 〒150-0002 Tokyo, Shibuya City, Shibuya, 2 Chome−4−10 鈴木ビル 102
