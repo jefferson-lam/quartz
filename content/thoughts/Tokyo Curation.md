@@ -113,7 +113,7 @@ Is it worth waiting in line for 3 hours to get in? Probably not. But if the line
 I'm donut?
 ### Going out
 
-Tokyo is filled with bars, but to keep things precise and concise, here's a short list of my favorites. I won't include any clubs here because I think they're all sort of mid. I will say that if you can manage to get into an underground party (illegal) with underground DJs that that will be the best experience of your life (I'll let you figure out how to find them). 
+Tokyo is filled with bars, but to keep things precise and concise, here's a short list of my favorites. I won't include any clubs here because I think they're all very average. Go to an izakaya and kick it with some locals.
 
 **Epulor**
 Japan, 〒153-0042 Tokyo, Meguro City, Aobadai, 1 Chome−19−10 エスセナーリオ青葉台 1F
