@@ -1,3 +1,7 @@
+---
+title: a blurp about time
+---
+
 Yesterday, I flew back to Seattle from Montreal where I spent the holidays seeing family and friends. I normally don't watch movies on the plane - nor movies at all for matter, but decided this time to scroll through the in-flight entertainment. *About Time* caught my eye. 
 
 I have heard about *About Time* before. I believe it was an edit showcasing the final lesson of the movie. I had forgotten what the edit showcased of the movie, but remembered being profoundly moved. I vowed to watch it at some point in my life, but had largely forgotten about it, until I saw it on the plane. 
