@@ -1,16 +1,12 @@
----
-title: books
-draft: "false"
----
 A (mostly) up-to-date list of books I have wanted to read, am reading, or finished reading. Links are to scribbles/ideas that were inspired by the book that's linked!
+## Current
+- **Crime and Punishment** by Fyodor Dostoevsky
 ## To read
-
 #### Fiction
 - **The Master and Margarita** by Mikhail Bulgakov
 - **The Brothers Karamazov** by Fyodor Dostoevsky
 - **The Captain's Daughter** by Alexander Pushkin
-## Current
-- **Crime and Punishment** by Fyodor Dostoevsky
+#### Non Fiction 
 - **Zero to One** by Peter Thiel
 ## Past
 #### 2024
