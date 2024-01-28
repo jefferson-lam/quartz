@@ -9,7 +9,7 @@ A (mostly) up-to-date list of movies that I've watched, or want to watch. Like f
 ## Past
 ### 2024
 - **Anatomie d'une chute** by Justine Triet
-- [About Time](thoughts/abouttime.md) by Richard Curtis
+- [About Time](abouttime.md) by Richard Curtis
 ### 2023
 - **Oppenheimer** by Christopher Nolan
 - **Barbie** by Greta Gerwig

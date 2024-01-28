@@ -17,3 +17,4 @@ Here are some places you may want to visit:
 - [The bookshelf on the far wall](/content/books.md): books that currently being read, are read or are to read
 - [The film tape on the ground](/content/movies.md): movies that I've been meaning to watch
 - [Somewhere, nowhere](content/travels.md): places that I've been to 
+- [Ungatekeeping fashion](content/fashion.md): blurbs about anything related to fashion 
