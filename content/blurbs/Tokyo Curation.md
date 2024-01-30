@@ -1,4 +1,6 @@
-Building this list up from all my past and future trips to Tokyo.
+Part of my [Japan Curation List](japan.md)
+
+Building this list up from all my past and future trips to Tokyo
 ### Favorite neighborhoods
 - Omotesando
 - Shibuya
@@ -16,7 +18,7 @@ One of my favorite stores in Tokyo - has more of an international feel featuring
 **10tow(トウ)**
 *Japan, 〒150-0042 Tokyo, Shibuya City, Udagawacho, 11−6 渋谷宇田川ＫＫビル 4F*
 
-As you climb the stairs, you start hearing a mix of techno, art-pop and experimental rock. This second-hand store focuses on avant-garde designers - a lot of Yohji Yamamoto, Comme des Garçons, Issey Miyake. I personally loved their selection of coats, and blazers. Expect to pay around ¥30,000 to ¥60,000 for the most of the collection, but more for things like coats.
+As you climb the stairs, you start hearing a mix of techno, art-pop and experimental rock. Focus on avant-garde designers - a lot of Yohji Yamamoto, Comme des Garçons, Issey Miyake. I personally loved their selection of coats, and blazers. Expect to pay around ¥30,000 to ¥60,000 for the most of the collection, but more for things like coats.
 
 ![[Pasted image 20240127144126.png]]
 *Low-res picture of my friend fighting demons contemplating this coat*

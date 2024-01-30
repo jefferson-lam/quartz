@@ -1,6 +1,6 @@
 ---
 title: a blurp about time
-private: "true"
+draft: "true"
 ---
 
 Yesterday, I flew back to Seattle from Montreal where I spent the holidays seeing family and friends. I normally don't watch movies on the plane - nor movies at all for matter, but decided this time to scroll through the in-flight entertainment. *About Time* caught my eye. 
