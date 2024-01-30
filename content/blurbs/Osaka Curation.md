@@ -35,7 +35,7 @@ The musts that you have to eat are **Osaka-style sushi** and **Takoyaki**
 **和じ庵**
 1 Chome-18-23 Edobori, Nishi Ward, Osaka, 550-0002, Japan
 
-A local recommended me this place, and as soon as I walked in, I felt so out of place... It was filled with old salarymen in suits, but I went fuck-it mode. Nobody spoke english, no english menu, and so I told the staff to just give me whatever and the food here was ungodly. Izakaya with a crazy selection of highballs, wagyu and fresh nigiri
+A local recommended me this place, and as soon as I walked in, I felt so out of place... It was filled with old salarymen in suits, but I went fuck-it mode. Nobody spoke english, no english menu, and so I told the staff to just give me whatever and the food here was **ungodly**. Izakaya with a crazy selection of highballs, wagyu and fresh nigiri - if you're willing to brave the storm this place is crazy
 
 **Oretachino-curry Ramen Koji Labo Osaka-namba**
 14-13 Nanbasennichimae, Chuo Ward, Osaka, 542-0075, Japan
@@ -67,13 +67,13 @@ A little hard to find, but this place won the best bakery in West Japan! Unreal 
 The spot where I got my Tofu Tiramisu! Apparently, a favorite amongst locals - pretty empty when I went. Cozy and retro vibe
 ### Shopping
 
-I was on the hunt for Sonny Angels here (smiskis are way better) so I spent so much time at these stores:
-
 **LOFT Umeda**
 16-7 Chayamachi, Kita Ward, Osaka, 530-0013, Japan
 
+Peer-pressured into shopping for Sonny Angels so came here... Smiskis are way better.....
+
 **Must: Don Quijote**
-Lots of locations, the mega one is this one: 3 Chome-4-36 Ebisuhigashi, Naniwa Ward, Osaka, 556-0002, Japan
+Lots of locations; the mega one is: 3 Chome-4-36 Ebisuhigashi, Naniwa Ward, Osaka, 556-0002, Japan
 
 The theme song is stuck in my head... roam around and see what kind of stupid stuff you can find here. My favorite section is on the 7th floor behind the curtain
 ### Attractions
