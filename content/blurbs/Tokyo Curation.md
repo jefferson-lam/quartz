@@ -1,3 +1,7 @@
+---
+date: 2024-01-19
+---
+
 Part of my [Japan Curation List](japan.md)
 
 Building this list up from all my past and future trips to Tokyo
