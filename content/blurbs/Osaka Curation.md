@@ -26,6 +26,26 @@ The worker here asked me how I found this store when I got here. Has the best co
 
 More of a punk/edgy feel! And you for sure feel it walking into the store. If you're into Gallery Dept., archive Raf Simons and Undercover, this is the place for you!
 
+**Why are you here.....? Mainstore**
+4 Chome-13-3 Minamisenba, Chuo Ward, Osaka, 542-0081, Japan
+
+Hosted the Vujade pop up in 02/24. Will come here next time I'm in Osaka.
+
+[
+
+Website
+
+](https://whyareyouhere.jp/)
+
+[
+
+Directions
+
+](https://www.google.com/maps/dir//why+are+you+here+osaka/data=!4m6!4m5!1m1!4e2!1m2!1m1!1s0x6000e71b41bcebdf:0x811ed7515a238f43?sa=X&ved=2ahUKEwjGu-rJsKGEAxUBJzQIHaWZC0QQ9Rd6BAhDEAA)
+
+ Saved
+
+Call
 ### Food
 
 I'm not going to lie, at this point in the trip, I was kind of tired of Japanese food, so a lot of the places I went to are super trashy, but here are some of the good ones I went to! You'll see that most of the places I went to have no reviews.. If you want good restaurants, I wouldn't trust Google Maps because it's all tourists. Switch to Japanese or search on **tabelog**, and anything above 3/5 is good
