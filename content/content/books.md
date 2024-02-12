@@ -1,6 +1,6 @@
 A (mostly) up-to-date list of books I have wanted to read, am reading, or finished reading. Links are to scribbles/ideas that were inspired by the book that's linked!
 ## Current
-- **Crime and Punishment** by Fyodor Dostoevsky
+- 
 ## To read
 #### Fiction
 - **The Master and Margarita** by Mikhail Bulgakov
@@ -12,6 +12,7 @@ A (mostly) up-to-date list of books I have wanted to read, am reading, or finish
 #### 2024
 - **The Creative Act: A Way of Being** by Rick Rubin
 - **An Antidote to Chaos** by Jordan Peterson
+- **Crime and Punishment** by Fyodor Dostoevsky
 #### 2023
 - **[[mindset]]: The New Psychology of Success** by Carol Dweck
 - **Atomic Habits** by James Clear
