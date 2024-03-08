@@ -1,0 +1,3 @@
+didn't get to write a retrospective for this morocco trip in 2023, but doing so now...
+
+the 7 days
