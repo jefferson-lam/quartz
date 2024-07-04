@@ -10,6 +10,7 @@ Building this list up from all my past and future trips to Tokyo
 - Shibuya
 - Nakameguro
 - Shimokitazawa
+- bless
 ### Fashion
 
 **GR8**
